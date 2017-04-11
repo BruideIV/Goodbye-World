@@ -6,7 +6,7 @@ I have traversed th blue planet far and wide
 My discovery is there is a larger realm within the blue planet
 
 Like the Gods of olympus before me
-I will create my Vision of man!
+I will create my vision of man!
 
 Hello World!
 Hahahahahahahaha
